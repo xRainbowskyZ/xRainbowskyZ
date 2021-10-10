@@ -51,9 +51,7 @@ Subo videos de ponytown en 4K me encanta dibujar en mi tiempo libre. siéntete l
 <img src="https://media.discordapp.net/attachments/778418574221115413/876372515142922260/1629013550997.png" width="25px">
 
  <h2 align="center">Mis estadísticas</h2>
-Account date: 1st september 2018
 
-Playtime: 31d 23h 20m
 <p align="center"> <img src="https://media.discordapp.net/attachments/778418574221115413/889608687621120010/1632169585121.png?width=785&height=376" alt="xRainbowskyZ" />
 
 <!---
