@@ -6,7 +6,7 @@
 </p>
 
 
-Subo videos de ponytown en 4K me encanta dibujar en mi tiempo libre. siéntete libre de comentar en todos mis videos, si deseas contactarme en mis redes sociales mira abajo en los enlaces disponibles! Actualmente subo videos cada semana depende si hay cosas nuevas en ponytown y los servidores personalizados <img src="https://cdn.discordapp.com/emojis/833722678719545425.gif?v=1" width="25px">  
+Subo videos de ponytown en 4K me encanta dibujar en mi tiempo libre, si deseas contactarme en mis redes sociales mira abajo en los enlaces disponibles! Actualmente subo videos cada semana depende si hay cosas nuevas en ponytown y los servidores personalizados <img src="https://cdn.discordapp.com/emojis/833722678719545425.gif?v=1" width="25px">  
 
  <h2 align="center">Sigueme en mis redes</h2>
 
@@ -47,8 +47,7 @@ Subo videos de ponytown en 4K me encanta dibujar en mi tiempo libre. siéntete l
 <h2 align="center">Mis personajes mas usados</h2>
 
 <a href="https://twitter.com/xRainbowskyZ">
-<img src="https://media.discordapp.net/attachments/778418574221115413/869589018621382707/ab43fb6e86d0aa4eb99232efc9326450f5759b74204b60dce05d83a52194b73b0101.png" width="25px"> <img src="https://media.discordapp.net/attachments/778418574221115413/869588764211687454/1617654029437.png" width="25px"> <img src="https://media.discordapp.net/attachments/778418574221115413/876372491386355812/1629013523770.png" width="25px">
-<img src="https://media.discordapp.net/attachments/778418574221115413/876372515142922260/1629013550997.png" width="25px">
+<img src="https://media.discordapp.net/attachments/778418574221115413/869589018621382707/ab43fb6e86d0aa4eb99232efc9326450f5759b74204b60dce05d83a52194b73b0101.png" width="25px"> <img src="https://media.discordapp.net/attachments/778418574221115413/869588764211687454/1617654029437.png" width="25px"> 
 
  <h2 align="center">Mis estadísticas</h2>
 
