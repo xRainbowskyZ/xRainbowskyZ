@@ -13,35 +13,35 @@ Subo videos de ponytown en 4K me encanta dibujar en mi tiempo libre, si deseas c
 <a href="https://twitter.com/xRainbowskyZ">
 <img align="right" alt="xRainbowskyZ" src="https://media.discordapp.net/attachments/778418574221115413/876366246923354143/1628466311993.png?width=703&height=703" width="300" height="300" />
 
-[Youtube](https://youtube.com/c/xRainbowSkyZ)
+[🍎Youtube🍎](https://youtube.com/c/xRainbowSkyZ)
 
-[Twitter](https://twitter.com/xRainbowskyZ)
+[💧Twitter💧](https://twitter.com/xRainbowskyZ)
 
-[Vkontakte](https://vk.com/xrainbowskyz)
+[❄Vkontakte❄](https://vk.com/xrainbowskyz)
 
-[DeviantArt](https://www.deviantart.com/xrainbowskyz)
+[🌲DeviantArt🌲](https://www.deviantart.com/xrainbowskyz)
 
-[Instagram](https://www.instagram.com/xrainbowskyz/)
+[☀️Instagram☀️](https://www.instagram.com/xrainbowskyz/)
 
-[Reddit](https://www.reddit.com/user/xRainbowskyZ)
+[🍅Reddit🍅](https://www.reddit.com/user/xRainbowskyZ)
 
-[Patreon](https://www.patreon.com/xRainbowskyZ/creators)
+[🔥Patreon🔥](https://www.patreon.com/xRainbowskyZ/creators)
 
-[Facebook](https://facebook.com/xRainbowskyZ)
+[🌐Facebook🌐](https://facebook.com/xRainbowskyZ)
 
-[Twitch](https://www.twitch.tv/xRainbowskyZ)
+[🔮Twitch🔮](https://www.twitch.tv/xRainbowskyZ)
 
-[Github](https://www.github.com/xRainbowskyZ)
+[🫐Github🫐](https://www.github.com/xRainbowskyZ)
 
-[Kofi](https://ko-fi.com/xrainbowskyz)
+[☕Kofi☕](https://ko-fi.com/xrainbowskyz)
 
-[Discord server](https://discord.com/invite/YSxTNaYFK2)
+[👑Discord server👑](https://discord.com/invite/YSxTNaYFK2)
 
-[Amino](https://aminoapps.com/u/xRainbowskyZ)
+[🌸Amino🌸](https://aminoapps.com/u/xRainbowskyZ)
 
-[Wattpad](https://www.wattpad.com/user/xRainbowskyZ)
+[📙Wattpad📙](https://www.wattpad.com/user/xRainbowskyZ)
 
-[Pinterest](https://www.pinterest.com/xrainbowskyz/)
+[📍Pinterest📍](https://www.pinterest.com/xrainbowskyz/)
 
 
 <h2 align="center">Mis personajes mas usados</h2>
