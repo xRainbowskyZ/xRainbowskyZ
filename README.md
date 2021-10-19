@@ -31,7 +31,7 @@ Subo videos de ponytown en 4K me encanta dibujar en mi tiempo libre, si deseas c
 
 [🔮Twitch🔮](https://www.twitch.tv/xRainbowskyZ)
 
-[🫐Github🫐](https://www.github.com/xRainbowskyZ)
+[🍇Github🍇](https://www.github.com/xRainbowskyZ)
 
 [☕Kofi☕](https://ko-fi.com/xrainbowskyz)
 
