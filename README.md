@@ -10,9 +10,6 @@ Subo videos 4K en YouTube, me encanta dibujar en mi tiempo libre, si deseas cont
 
  <h2 align="center">Sigueme en mis redes</h2>
 
-<a href="https://twitter.com/xRainbowskyZ">
-<img align="right" alt="xRainbowskyZ" src="https://cdn.discordapp.com/attachments/778418574221115413/907650611686801458/1001.png" width="300" height="300" />
-
 [🍎Youtube🍎](https://youtube.com/c/xRainbowSkyZ)
 
 [💧Twitter💧](https://twitter.com/xRainbowskyZ)
