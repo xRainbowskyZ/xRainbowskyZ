@@ -44,22 +44,10 @@ Subo videos 4K en YouTube, me encanta dibujar en mi tiempo libre, si deseas cont
 [📍Pinterest📍](https://www.pinterest.com/xrainbowskyz/)
 
 
-<h2 align="center">Pony Town: Mis personajes mas usados</h2>
+<h2 align="center">Mis personajes mas usados</h2>
 
 <a href="https://twitter.com/xRainbowskyZ">
 <img src="https://media.discordapp.net/attachments/778418574221115413/869589018621382707/ab43fb6e86d0aa4eb99232efc9326450f5759b74204b60dce05d83a52194b73b0101.png" width="25px"> <img src="https://media.discordapp.net/attachments/778418574221115413/869588764211687454/1617654029437.png" width="25px"> 
-
-<h2 align="center">Pony Town: Estadísticas</h2>
-
-Clovers collected 666 🍀 
-
-Eggs collected 666 🥚 
-
-Candies collected 666 🍬 
-
-Gifts collected 666 🎁 
-
-Pearls collected 306 ⚪ 
 
 <h2 align="center">Pony Town: Reportes Publicos</h2>
 Esta categoría es nueva, aqui subire todos los reportes que me envien
