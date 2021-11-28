@@ -54,7 +54,7 @@ háganlo, así ayudas a que mejore una comunidad.
 
 
 (Reporte 27/11/2021) 
-Usuario con comportamiento inadecuado, una persona me envió el reporte mediante discord confirmando que el jugador que se ve en la captura roba personajes y
+Usuario con comportamiento inadecuado en Safe Spanish/portuguese, una persona me envió el reporte mediante discord confirmando que el jugador que se ve en la captura roba personajes y
 molesta a personas haciendo que lo ataquen, Si ven a ese usuario denle hide permanente
 
 <p align="center">
