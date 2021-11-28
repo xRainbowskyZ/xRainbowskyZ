@@ -54,8 +54,8 @@ háganlo, así ayudas a que mejore una comunidad.
 
 
 (Reporte 27/11/2021) 
-Usuario con comportamiento inadecuado en Safe Spanish/portuguese, una persona me envió el reporte mediante discord confirmando que el jugador que se ve en la captura roba personajes y
-molesta a personas haciendo que lo ataquen, Si ven a ese usuario denle hide permanente
+Usuario con comportamiento inadecuado en Safe Spanish/portuguese, una persona me envió el reporte mediante discord confirmando que el jugador que se ve en la captura roba mi personaje y
+molesta a personas, han descubierto que usa el nombre Lord Shen y personajes con nombres (M.L.P), Si ven a ese usuario denle hide permanente
 
 <p align="center">
  <img width="500px" src="https://cdn.discordapp.com/attachments/778418574221115413/914267871293624350/1638048563307.png" align="center" alt=" xRainbowskyZ" />
