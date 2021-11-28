@@ -47,9 +47,19 @@ Subo videos 4K en YouTube, me encanta dibujar en mi tiempo libre, si deseas cont
 <img src="https://media.discordapp.net/attachments/778418574221115413/869589018621382707/ab43fb6e86d0aa4eb99232efc9326450f5759b74204b60dce05d83a52194b73b0101.png" width="25px"> <img src="https://media.discordapp.net/attachments/778418574221115413/869588764211687454/1617654029437.png" width="25px"> 
 
 <h2 align="center">Pony Town: Reportes Publicos</h2>
+
 Esta categoría es nueva, aqui subire todos los reportes que me envien
 a mi discord xRainbowskyZ#0111, si desean tomar acciones ante esas personas reportadas
 háganlo, así ayudas a que mejore una comunidad.
+
+
+(Reporte 27/11/2021) 
+Usuario con comportamiento inadecuado, una persona me envió el reporte mediante discord confirmando que el jugador que se ve en la captura roba personajes y
+molesta a personas haciendo que lo ataquen, Si ven a ese usuario denle hide permanente
+
+<p align="center">
+ <img width="500px" src="https://cdn.discordapp.com/attachments/778418574221115413/914267871293624350/1638048563307.png" align="center" alt=" xRainbowskyZ" />
+
 
 <!---
 xRainbowskyZ/xRainbowskyZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
