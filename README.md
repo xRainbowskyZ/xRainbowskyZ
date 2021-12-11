@@ -6,7 +6,7 @@
 </p>
 
 
-Subo videos 4K en YouTube, me encanta dibujar en mi tiempo libre, si deseas contactarme en mis redes sociales mira abajo en los enlaces disponibles! Actualmente subo videos cada semana depende si hay cosas nuevas <img src="https://cdn.discordapp.com/emojis/833722678719545425.gif?v=1" width="25px">  
+Si deseas contactarme en mis redes sociales mira abajo en la lista! también puedes hablarme en discord: xRainbowskyZ#0111 <img src="https://cdn.discordapp.com/attachments/778418574221115413/919034122142363719/ezgif-7-f2e04a896d0d.gif" width="25px">  
 
  <h2 align="center">Sigueme en mis redes</h2>
 
@@ -44,7 +44,7 @@ Subo videos 4K en YouTube, me encanta dibujar en mi tiempo libre, si deseas cont
 <h2 align="center">Mis personajes mas usados</h2>
 
 <a href="https://twitter.com/xRainbowskyZ">
-<img src="https://media.discordapp.net/attachments/778418574221115413/869589018621382707/ab43fb6e86d0aa4eb99232efc9326450f5759b74204b60dce05d83a52194b73b0101.png" width="25px"> <img src="https://media.discordapp.net/attachments/778418574221115413/869588764211687454/1617654029437.png" width="25px"> 
+<img src="https://media.discordapp.net/attachments/778418574221115413/869589018621382707/ab43fb6e86d0aa4eb99232efc9326450f5759b74204b60dce05d83a52194b73b0101.png" width="30px"> <img src="https://media.discordapp.net/attachments/778418574221115413/919029634803306537/1639183896801.png" width="30px"> <img src="https://media.discordapp.net/attachments/778418574221115413/919029654894039101/1639183864178.png" width="30px">  <img src="https://media.discordapp.net/attachments/778418574221115413/919029572723413072/1639184001994.png" width="30px">  <img src="https://media.discordapp.net/attachments/778418574221115413/919029613118767124/1639183934091.png" width="30px">  <img src="https://media.discordapp.net/attachments/778418574221115413/919029593036427304/1639183956180.png" width="30px"> 
 
 <!---
 xRainbowskyZ/xRainbowskyZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
