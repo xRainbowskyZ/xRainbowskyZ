@@ -5,7 +5,7 @@
 <p align="center">Youtuber | Animator | Artist <img src="https://verified-badge.vedb.me/wp-content/uploads/2020/07/Facebook-Logo-Verified-Badge-PNG.png" width="13px"> </p>
 </p>
 
-Si deseas contactarme en mis redes sociales mira abajo en la lista! también puedes hablarme en discord: xRainbowskyZ#0111 <img src="https://cdn.discordapp.com/attachments/778418574221115413/919034122142363719/ezgif-7-f2e04a896d0d.gif" width="25px">  
+Si deseas contactarme en mis redes sociales mira abajo en la lista! también puedes hablarme en discord: xRainbowskyZ#0111
 
  <h2 align="center">Mis redes</h2>
 
