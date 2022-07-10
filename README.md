@@ -40,10 +40,16 @@ Si deseas contactarme en mis redes sociales mira abajo en la lista! también pue
 [📍Pinterest📍](https://www.pinterest.com/xrainbowskyz/)
 
 
-<h2 align="center">Mis personajes mas usados</h2>
+<h2 align="center">Versión pasada y actual </h2>
+<p align="center">
 
-<a href="https://twitter.com/xRainbowskyZ">
-<img src="https://media.discordapp.net/attachments/778418574221115413/869589018621382707/ab43fb6e86d0aa4eb99232efc9326450f5759b74204b60dce05d83a52194b73b0101.png" width="30px"> <img src="https://media.discordapp.net/attachments/778418574221115413/919029634803306537/1639183896801.png" width="30px"> <img src="https://media.discordapp.net/attachments/778418574221115413/919029654894039101/1639183864178.png" width="30px">  <img src="https://media.discordapp.net/attachments/778418574221115413/919029572723413072/1639184001994.png" width="30px">  <img src="https://media.discordapp.net/attachments/778418574221115413/919029613118767124/1639183934091.png" width="30px">  <img src="https://media.discordapp.net/attachments/778418574221115413/919029593036427304/1639183956180.png" width="30px"> 
+ <img width="150px" src="https://cdn.discordapp.com/attachments/778418574221115413/995789725992501248/1657438867278.png" align="center" alt=" xRainbowskyZ" />
+
+<img width="200px" src="https://cdn.discordapp.com/attachments/778418574221115413/907650703714029639/1627399213006.png" align="center" alt=" xRainbowskyZ" />
+
+
+
+</p>
 
 <!---
 xRainbowskyZ/xRainbowskyZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
